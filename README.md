@@ -10,4 +10,4 @@
 
 00001137804063sp@al.educacao.sp.gov.br
 
-![descrição do GIF](https://tenor.com/pt-BR/view/lilo-and-stitch-angel-love-flying-kiss-heart-gif-14954191)
+![descrição do GIF](https://tenor.com/pt-BR/view/stitch-sleepy-gif-4669820445474953380)
