@@ -10,4 +10,5 @@
 
 00001137804063sp@al.educacao.sp.gov.br
 
-![]([https://media.tenor.com/WjRoJjRUSLgAAAAi/hair-flip-disgust.[https://media.tenor.com/WjRoJjRUSLgAAAAi/hair-flip-disgust.gif])
+![](https://media.tenor.com/_FffkA7ALk4AAAAi/lilo-and-stitch-angel.gif)
+
