@@ -10,4 +10,4 @@
 
 00001137804063sp@al.educacao.sp.gov.br
 
-![](https://tenor.com/pt-BR/view/stitch-sleepy-gif-4669820445474953380)
+![]([https://media.tenor.com/WjRoJjRUSLgAAAAi/hair-flip-disgust.[https://media.tenor.com/WjRoJjRUSLgAAAAi/hair-flip-disgust.gif])
